@@ -1,10 +1,10 @@
-# Queen Ashiya V2
+# INVADERS OFC 
 
 ### WhatsApp MD user bot
 
 ## World best multi device whatsapp bot🖤
 
-<img src="https://i.ibb.co/tm8BJTw/b13594a88fe8f1b8cf4ac9d7a2f07f74.jpg" alt="nz" width="350"/>
+<img src="https://i.imgur.com/As9dMM5.jpeg" alt="nz" width="350"/>
 
 </p>
 
